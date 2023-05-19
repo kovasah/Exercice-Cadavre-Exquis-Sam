@@ -1,1 +1,1 @@
-Les affaires sont les affaires.
+Allumez le feu aux quatre coins des villes, fauchez les peuples, rasez tout, et quand il ne restera plus rien de ce monde pourri, peut-être en repoussera-t-il un meilleur. Il y avait des hommes si ambitieux qu'ils auraient torché les chefs, pour les entendre seulement dire merci.
